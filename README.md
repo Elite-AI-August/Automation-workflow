@@ -2,7 +2,7 @@
 
 Want to collaboration for your project?
 let me know then : 
-## azimaahmed36@gmail.com
+## carollhwrd@gmail.com
 
 ## Another work live link :
 ### https://boneguide.netlify.app/workflow
@@ -29,8 +29,8 @@ https://fsm-editor.netlify.app/
 
 ![image](https://user-images.githubusercontent.com/67516192/218781461-0aac3060-ee8d-442b-a2ff-31bb1b9031a4.png)
 
-![image](https://github.com/Azim-Ahmed/Automation-workflow/assets/67516192/3aa6cca6-fbb7-4d64-b670-8417948ad082)
+![image](https://github.com/Elite-AI-August/Automation-workflow/assets/67516192/3aa6cca6-fbb7-4d64-b670-8417948ad082)
 
 ### Last one
 
-![image](https://github.com/Azim-Ahmed/Automation-workflow/assets/67516192/6321949d-f9ab-457d-8d05-323b1c91f789)
+![image](https://github.com/Elite-AI-August/Automation-workflow/assets/67516192/6321949d-f9ab-457d-8d05-323b1c91f789)
